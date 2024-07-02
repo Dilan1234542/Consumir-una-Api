@@ -1,1 +1,0 @@
-LINK DE AWS: 
